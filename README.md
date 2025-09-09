@@ -10,7 +10,7 @@
 
 ## 🎬 <span style="color: #9B59B6">**Preview**</span>
 
-[![CMPN TOOL Preview](https://img.youtube.com/vi/YOUR_VIDEO_ID/0.jpg)](https://www.youtube.com/watch?v=YOUR_VIDEO_ID)
+CMPN TOOL FREE SPOTIFY PREVIEW: https://streamable.com/06rb09
 
 *Click the image above to watch the tool in action!*
 
